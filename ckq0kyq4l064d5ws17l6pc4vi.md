@@ -2,6 +2,8 @@
 
 This is a small application I created with Flutter to spice up my daily Chess games with my 6-year-old son. If you also play Chess with kids, give it a try! Here are the best 3 things about this app:
 
+![2.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1623916625864/BIMrI33WB.png)
+
 ## Fully Randomized Board
 *Maximum fun and slightly "unfair" - The mode that little kids LOVE! *
 
