@@ -16,4 +16,4 @@ Gần đây có khá nhiều bạn liên hệ với tôi để hỏi xem nên mu
 
 ![Slide7.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630034441345/PIUinGDPx.png)
 
-![Slide8.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630034436880/spEFNSyiF.png)
+![Slide 8.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630049864541/HuQKS2ufY.png)
