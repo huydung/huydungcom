@@ -2,8 +2,6 @@
 
 Gần đây có khá nhiều bạn liên hệ với tôi để hỏi xem nên mua thiết bị máy móc như thế nào để cho con chuẩn bị học online, trong bối cảnh giãn cách tại nhiều tỉnh thành ở Việt Nam. Hầu hết là các bố mẹ có con cùng tuổi với con tôi, tức là đi học Lớp 1 năm nay. Đêm qua bèn thức một chút viết ra để chia sẻ cho tiện, mời các bố mẹ cùng tham khảo, và nếu thấy hữu ích thì cho xin 500 Like và Share nhé!
 
-![Slide1.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630034411335/lmuZWB8xy.png)
-
 ![Slide2.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630034440185/nkDd_Zs9uh.png)
 
 ![Slide3.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630034439783/s4DWPf874.png)
@@ -16,4 +14,4 @@ Gần đây có khá nhiều bạn liên hệ với tôi để hỏi xem nên mu
 
 ![Slide7.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630034441345/PIUinGDPx.png)
 
-![Slide8.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630050034699/zekYNxT2R.png)
+![Slide8.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1630051107590/IuR7cNFJN.png)
